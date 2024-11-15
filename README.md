@@ -1,10 +1,6 @@
 ## Still hard working 
 I'm looking for help:
 ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10
-
-![image](https://github.com/user-attachments/assets/0527e295-8dc4-4a98-80d8-7754c86e106d)
-
-
 <!--
 **vadimwilhelm/vadimwilhelm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
