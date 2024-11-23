@@ -1,6 +1,4 @@
 ## Just coding weird stuff
-I'm looking for help:
-▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10
 <!--
 **vadimwilhelm/vadimwilhelm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
